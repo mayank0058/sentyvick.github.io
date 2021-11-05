@@ -1,2 +1,1 @@
 # sentyvick.github.io
-
